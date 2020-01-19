@@ -2,7 +2,7 @@
 
 
 
-ENGLISH VERSION: https://alrarum.github.io/Policy-Paints-Mix/
+English version: https://alrarum.github.io/Policy-Paints-Mix/
 
 Обновлено 19.01.2020
 
