@@ -1,8 +1,8 @@
 # Краски: цветовые комбинации - Политика конфиденциальности
 
 
-ENGLISH VERSION: https://alrarum.github.io/Paints-colors-combo-Policy-ENG/
 
+ENGLISH VERSION: https://alrarum.github.io/Paints-colors-combo-Policy-ENG/
 
 Обновлено 19.01.2020
 
